@@ -1,0 +1,2 @@
+#Friday the 7th journal  
+This journal is coming in late because of my old  laptop breaking down and not having time to repair it. Apologies for that. For the most part the first week went slow except for the last day which I really suffered from not being in class for lab time. I eventually figured it out but the lack of TA's and classmates was felt. Still extremely enjoyable even if I feel myself falling into the pit. I still need to work on asking the TA's for more help. I can make progress on my own, but its so slow that my time could be being spent better.
